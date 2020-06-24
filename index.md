@@ -1,3 +1,8 @@
-# Welcome to my blog
+# Welcome to Noble empire
 
-I'm glad you are here. I plan to talk about ...
+we sell and buy bitcoin giftcards 
+itunes
+steam
+google play 
+amazon
+whatsapp/call 09034788100
